@@ -284,10 +284,7 @@ It is the one that can absorb a setback without changing course.
 
 Build enough margin that bad days become inconveniences instead of turning points.
 
-
 ---
-
-# 7. Own productive assets
 
 # 7. Own productive assets
 
