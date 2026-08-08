@@ -487,8 +487,6 @@ Judge it by the mistakes it allows you to avoid.
 
 # 11. Debt borrows from tomorrow
 
-# 11. Debt borrows from tomorrow
-
 Debt is not free money.
 
 It is tomorrow's income spent today.
