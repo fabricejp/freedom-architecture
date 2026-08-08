@@ -2926,13 +2926,3 @@ Design your life so that saying "no" becomes effortless.
 The freedom that follows is the quiet reward for every decision that came before.
 
 ---
-
-# 71. Make dependence a conscious choice
-
----
-
-# 72. Design for the next decade
-
----
-
-# 73. Design your life so that saying "no" becomes effortless
